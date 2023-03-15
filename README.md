@@ -1,5 +1,5 @@
-<h2 align="center">ʙɪɢ ᴋᴀɪᴊᴜ ᴛʜᴇ ɢʀᴇᴀᴛ</h2>
-<h3 align="center">ᴮᴸᴬᶜᴷ ᴹᴬˢᶜᵁᴸᴵᴺᴵˢᵀ ᵀᴴᴱᴼᴿʸ</h3>
+<h2 align="center">ʙɪɢ ᴋᴀɪᴊᴜ ᴛʜᴇ ɢʀᴇᴀᴛ 🥷🏾 </h2>
+<h3 align="center"></h3>
 
 <p align="center">
 <a href="https://twitter.com/zillz" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="zillz" height="20" width="30" /></a>

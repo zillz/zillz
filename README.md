@@ -1,4 +1,4 @@
-# @zillz
+# ꜱᴜᴘᴇʀ 𝐙
 
 🎮 Gaming Content Creator | 🎥 Live Streamer | 🧠 Gameplay + commentary
 
